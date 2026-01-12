@@ -55,4 +55,4 @@ If you have any questions about this Privacy Policy, please contact us at:
 
 ---
 
-© 2026 Derek Harmon. All rights reserved.
+© 2026. All rights reserved.
